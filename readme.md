@@ -1,3 +1,17 @@
+## 🟢 LIVE: sentinel.teosegypt.com | 258 Controls | 1325/1325 Passing
+
+### 💵 FAST USD - 50% OFF - Code TEOS10
+
+**Instant (1 min):** 10 USDC Solana → `Aai9XYkpQMrVMLTP5CKHSin1UoJ12rU2FSupGwpNwMQ6`
+**WhatsApp Activation:** [wa.me/201006167293](https://wa.me/201006167293?text=TEOS10%20Paid%20-%20Sent%2010%20USDC%20Solana%20to%20Aai9XYkpQMrVMLTP5CKHSin1UoJ12rU2FSupGwpNwMQ6%20-%20TX%20ID%3A)
+
+**Official Dodo (Card):**
+- PRO Monthly: https://dodo.pe/teos-starter-monthly-730161
+- PRO Annual: https://dodo.pe/teos-starter-annual-730161  
+- TEAM Annual: https://dodo.pe/teos-team-annual-730161
+- FREE: https://dodo.pe/teos-free-730161
+
+Telegram: t.me/TeosSentinelBot | I build a nation 🇪🇬
 ### 🟢 LIVE: [sentinel.teosegypt.com](https://sentinel.teosegypt.com) | 258 Controls | 1325/1325 Passing | v5.0 RC
 ### I don't build repos. I build a nation.
 ### 💰 Use TEOS10 on Telegram → $100 plan for $10 first month
